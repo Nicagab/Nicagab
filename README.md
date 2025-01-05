@@ -1,9 +1,9 @@
-# Formação Acadêmica:
-- Ensino médio com Habilitação Profissional em Técnico de Desenvolvimento de Sistemas (2022-2024)
-- ...
+# 🎓Formação Acadêmica:
+- ✅Ensino médio com Habilitação Profissional em Técnico de Desenvolvimento de Sistemas (ETEC Albert Einstein 2022-2024)✅
+- 📖Estudando para ingressar na faculdade...📖
 
-# Carreira Profissional
-- Tentando ingressar na área...
+# 👩‍💻Carreira Profissional
+- 🔎Tentando ingressar na área...🔎
 
 # Estatísticas do meu perfil:
 
