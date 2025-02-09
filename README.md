@@ -1,6 +1,6 @@
 # 🎓Formação Acadêmica:
 - ✅Ensino médio com Habilitação Profissional em Técnico de Desenvolvimento de Sistemas (ETEC Albert Einstein 2022-2024)✅
-- 📖Estudando para ingressar na faculdade...📖
+- 📖Técnologo - Análise e Desenvolvimento de Sistemas (Fatec São Paulo 2025-)📖
 
 # 👩‍💻Carreira Profissional
 - 🔎Tentando ingressar na área...🔎
