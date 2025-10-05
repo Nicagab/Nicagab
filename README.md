@@ -3,7 +3,7 @@
 - 📖Técnologo - Análise e Desenvolvimento de Sistemas (Fatec São Paulo 2025-)📖
 
 # 👩‍💻Carreira Profissional
-- 🔎Tentando ingressar na área...🔎
+- Instrutora de Programação/Robótica (2025-)
 
 # Estatísticas do meu perfil:
 
